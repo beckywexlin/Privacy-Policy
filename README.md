@@ -1,2 +1,2 @@
-# Brass-Tacks-Privacy-Policy
+# Privacy-Policy
 Brass Tacks Privacy Policy
